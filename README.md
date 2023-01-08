@@ -1,6 +1,7 @@
+(https://cutewallpaper.org/21/technology-linkedin-background/Entry-1-by-imarinaazer-for-LinkedIn-background-picture-.jpg)
 ### Hi there 👋, I'm Toufiqur Rahman
 #### Software Engineer 
-![Software Engineer ](https://cutewallpaper.org/21/technology-linkedin-background/Entry-1-by-imarinaazer-for-LinkedIn-background-picture-.jpg)
+![Software Engineer ]
 
 I'm Toufiqur Rahman. I’m currently Studying Computer Science and Engineering(CSE)
 
